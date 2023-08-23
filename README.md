@@ -1,5 +1,5 @@
-## THE PERFECTIONISTS  
-# By ARNOLD CASTLE  
+# THE PERFECTIONISTS  
+## By ARNOLD CASTLE  
  
 Is there something wrong with you?  
  Do you fail to fit in with your group?  
